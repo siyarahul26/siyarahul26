@@ -31,7 +31,6 @@ Strengthening my technical skills, working on practical projects, and preparing 
 
 ### 🤝 Let's Connect
 - GitHub: [@siyarahul26](https://github.com/siyarahul26)
-- LinkedIn: Coming Soon
 
 ---
 
